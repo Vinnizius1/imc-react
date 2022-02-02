@@ -2,5 +2,5 @@
 
 https://seuimcagora.netlify.app  
 
-#### 📅 mais melhorias no projeto em breve... 👷‍♂️🏗️
+#### 📅 novas melhorias no projeto devem chegar... 👷‍♂️🏗️
 
